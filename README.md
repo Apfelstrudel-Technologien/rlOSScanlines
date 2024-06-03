@@ -1,1 +1,1 @@
-![main_2Kv4ZTwIL4](https://github.com/Apfelstrudel-Technologien/rlOSScanlines/assets/94743980/73edc801-14d4-4376-883c-d23c058c3f3a)
+<img src="https://github.com/Apfelstrudel-Technologien/rlOSScanlines/assets/94743980/bbffc77e-633c-482c-9fe8-b808dc1708b9" width=500><img src="https://github.com/Apfelstrudel-Technologien/rlOSScanlines/assets/94743980/97e31550-1d50-41a8-ab55-7c601bde2f05" width=500>
